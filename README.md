@@ -1,5 +1,5 @@
 hi
 
-![](![image](https://github.com/user-attachments/assets/1bb3f461-44fc-442c-88cc-fa0641276186)
+![](https://tenor.com/pt-PT/view/sense-life-life-sense-hq-manga-br-gif-8137741890687446580)
 
 
